@@ -1,3 +1,3 @@
 **Ertai Quanyshov**
 
-Flutter Software Developer
+😀 Flutter Software Developer
